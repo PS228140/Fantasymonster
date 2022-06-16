@@ -1,2 +1,2 @@
-Suzan en freek is de shit!!
-Gadverdamme!
+Suzan Gadverdamme!
+Freek smash!
